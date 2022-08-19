@@ -1,2 +1,2 @@
 # teste
-Novo repositprio Tester
+Novo repositório teste do canala rapidinhas do Ben Deivide
